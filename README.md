@@ -25,3 +25,6 @@ https://venturebeat.com/2015/04/14/155-million-americans-play-video-games-and-4-
 
 Reference 6:
 https://nobullying.com/violent-video-games/
+
+Reference 7:
+https://www.thegamer.com/15-real-life-crimes-inspired-by-video-games/
