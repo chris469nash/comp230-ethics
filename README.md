@@ -28,3 +28,6 @@ https://nobullying.com/violent-video-games/
 
 Reference 7:
 https://www.thegamer.com/15-real-life-crimes-inspired-by-video-games/
+
+Reference 8:
+https://www.charismanews.com/culture/52651-14-mass-murders-linked-to-violent-video-games
