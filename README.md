@@ -34,3 +34,6 @@ https://www.charismanews.com/culture/52651-14-mass-murders-linked-to-violent-vid
 
 Reference 9:
 https://www.engadget.com/2015/08/20/video-games-mental-illness/
+
+Reference 10:
+http://news.bbc.co.uk/1/hi/technology/4118270.stm
