@@ -31,3 +31,6 @@ https://www.thegamer.com/15-real-life-crimes-inspired-by-video-games/
 
 Reference 8:
 https://www.charismanews.com/culture/52651-14-mass-murders-linked-to-violent-video-games
+
+Reference 9:
+https://www.engadget.com/2015/08/20/video-games-mental-illness/
